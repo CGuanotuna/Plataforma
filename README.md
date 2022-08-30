@@ -1,2 +1,2 @@
 # Plataforma
-Plataforma informativa
+Plataforma x2
